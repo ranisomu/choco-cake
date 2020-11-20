@@ -1,0 +1,1 @@
+Melt the chocolate , Apply the melted chocolate on the cake. Your choco cake is ready to be served.
